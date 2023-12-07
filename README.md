@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vishnu221-web
 - 👀 I’m interested in website developer
 - 🌱 I’m currently learnings python 
-- 💞️ I’m looking to collaborate on SKILLED PROFESSIONALS 
+- 💞️ I’m looking to collaborate with SKILLED PROFESSIONALS 
 - 📫 How to reach me 
 - 😉 send me what's app 8790171202
 <!---
